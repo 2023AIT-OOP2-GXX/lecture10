@@ -23,6 +23,39 @@
 
 ・・・・
 ・・・・
+
+うんちうにつfsかdfskjl；あdfsk；jldsjk；dlsfjfkds
+
+
+fkdふぁs；jkぁdfskjl；あdsfkj；ぁdsfk；jldさ’あdsっdsdsds
+
+dsだsdさdkdksfdfsdsfdsfdsf
+おmなああいおあえいえwjけwjけwjk；えwjk；ぇw
+あfjkだfshjkhj；かhjk；wjkl；jk；rdsっfdsdfsdfs
+rfhjkぁえgrhjk；あえrgじぇらgれg’えgrjk’あえgrw
+
+rwけgrえr；mぁえtgぇkljkljr；’rwgあえrgdsっっfdsdfdfs
+
+
+えあrがrげあらrがgれあrげあえrgdfsdfsdfsdfっっっっっっっっっっっっs
+
+
+あsdっっっっっっっっっっっっっっっっっっっっf
+dsfdfsdfsdfsdfs
+fds
+dfsdsfdfs
+dsfdsfdfsdsfdfs
+
+
+dfsdsfdsfdsっfdっっっっっっっっっっっdsfっっっっs
+sdf
+fsdfdsfds
+
+
+
+
+
+kgdfskんl；あgdfkjl；あdfgk；ljふぁgdkj；ぁfgdjk；ぁfgdkjl；あdfgjkl；dfsdsvf
 ### 3-1. Gitを始めとしたバージョン管理システムを利用することによるメリットはなにか
 
 
