@@ -330,7 +330,8 @@ kjfdsjkぁfdsjkぁdfskじゃfsdk
 
 
 ヨッシーーーーーーーーーーーーーーーーーーーーー
-今日は忙しい
+今日は忙しい、。ds、あdsv・sdfgklgkljgjkl；あgdf；jklがdf；jklsdgf
+
 
 
 
