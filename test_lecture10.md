@@ -17,7 +17,7 @@
 
 ## 3. Git及びGitHubに関する調査
 
-お試し￥・・・・・・・・・・・・・・・・・
+お試し￥・・・・・・・・・・・・・・・・・kkkkkkkjkhjhkljhlkhjhjjhklljhkjhlkjlhkljhkljhlhjljh
 
 ・・・・
 
